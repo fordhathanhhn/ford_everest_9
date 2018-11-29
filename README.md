@@ -1,5 +1,5 @@
 
 Tính năng, tiện nghi xe Ford Everest
-Ford Explorer hoàn toàn mới, hốc hút gió phía trước thiết kế với những thanh ống ngang được khuyết vát tạo thành hình 3D thể hiện thiết kế mang phong cách hiện đại, cách tân và rất sang trọng.
+Ford Everest Titanium 2.0L được trang bị chức năng rửa kính đèn chiếu sáng phía trước và Ford Everest thiết kế khí động học hệ số cản gió Cd thấp (0,389) giúp xe vận hành ổn định, chắc chắn và tiết kiệm nhiên liệu.
 https://www.goodreads.com/story/show/1081708-t-nh-n-ng-ti-n-nghi-xe-ford-everest
 #ford_everest_2018 #ha_thanh_ford #ford_everest
